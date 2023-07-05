@@ -12,6 +12,7 @@ I am **Yasaswini** pursuing Computer Science degree from University of Hyderabad
 
 👯 I’m looking to collaborate on ...
 - Any work related to ML
+- Any work related to Development
 
 📫 How to reach me: ...
 
