@@ -19,7 +19,7 @@ I am **Yasaswini** pursuing Computer Science degree from University of Hyderabad
 
 [LinkedIn](https://www.linkedin.com/in/yasaswini-tiramdas-20727a18a/) Profile.
 
-**👨 My Portfolio**: [Portfolio](https://yashi1011.github.io)
+**👧🏻 My Portfolio**: [Portfolio](https://yashi1011.github.io)
 
 **⚡ Fun fact:**
 
