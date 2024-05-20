@@ -1,4 +1,4 @@
-# Hi there 👋, I am Yasaswini Tiramdas ([@yashi1011](https://yashi1011.github.io))</h1>
+# Hi there 👋, I am Yasaswini Tiramdas ([@ytiramdas](https://ytiramdas.github.io))</h1>
 
 ### Who am I?
 
